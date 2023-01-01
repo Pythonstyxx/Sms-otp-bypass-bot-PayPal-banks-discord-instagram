@@ -28,4 +28,4 @@ Bank's - 3D - Wallet - Crypto - Shopping - Working for all services
 
 YouTube proof: https://youtu.be/z_lLrXTTXGU
 
-Contact me: t.me/pythonstyxx
+Contact me: https://t.me/pythonstyxx
